@@ -1,0 +1,1 @@
+Fuck Nintendo: https://www.mediafire.com/file/efm3dzre4c9k2e5/EmulatorForks.rar/file
